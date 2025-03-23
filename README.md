@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning accounting
 - 💞️ I’m looking to collaborate on CPA
 - 📫 How to reach me floresherrera.juanluis@yahoo.com
-- 😄 Pronouns: Juan
+- 😄 Pronouns: Juan Luis
 - ⚡ Fun fact: ...
 
 <!---
